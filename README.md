@@ -32,7 +32,7 @@ I'm an 18-year-old passionate full-stack web developer, actively building beauti
 ### 📫 Contact Me
 
 - ✉️ Email: tamilmanib2007@gmail.com  
-- 💼 LinkedIn: [linkedin.com/in/tamilmani-b2007](https://linkedin.com/in/tamilmani-b2007)
+- 💼 LinkedIn: www.linkedin.com/in/tamilmani-b-067a7831a
 
 ---
 
